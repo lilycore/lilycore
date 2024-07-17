@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any beginner friendly projects
 - 📫 How to reach me: you can reach me on github: @lilycore, dc: @lilyc0re insta: @ishipiishii, ALSO checkout my youtube channel: @lilycore12 // films by lily
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: i almost did biotech engineering at yonsei univerisity in korea and a serious career change turned my life upside down and i couldn't be more grateful
+- ⚡ Fun fact: i almost did biotech engineering at yonsei univerisity in korea and a serious career change turned my life upside down and i couldn't be more grateful, I LOVE GETTING CALLED A NERD
 
 <!---
 lilycore/lilycore is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
